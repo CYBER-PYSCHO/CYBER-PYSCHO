@@ -4,7 +4,12 @@
 
 <p align="center"
 
-# $${\color{pink} "my moon, my man" \}$$
+
+ 
+
+ [![Typing SVG](https://readme-typing-svg.demolab.com?font=Lobster+Two&duration=4000&pause=1000&color=F7B9D4&center=true&width=435&lines=%22+my+moon+%2C+my+man+%22)](https://git.io/typing-svg)
+
+
 
 <p align="center">
 
