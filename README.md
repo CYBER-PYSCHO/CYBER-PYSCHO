@@ -2,7 +2,7 @@
 
 <p align="center"
 
-TY FOR 100 FOLLOWERSSSS!!!
+𝗧𝗬 𝗙𝗢𝗥 100 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥𝗦 !!!!!
 
 <p align="center"
 
