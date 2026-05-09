@@ -1,5 +1,6 @@
 
 
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastmen⠀%20&color=ffa343&social"alt="wolfcutiee" 
   / >
  
@@ -8,6 +9,7 @@
 𝗧𝗬 𝗙𝗢𝗥 100 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥𝗦 !!!!! — REMAKING
 
 <p align="center"
+
 
 
 
@@ -27,9 +29,7 @@
  [<img sarc="200" height="200" alt="Untitled2110_20260509124547" src="https://github.com/user-attachments/assets/368e98a6-404a-4e7d-ad29-5c1153f415da" /> 
 ](https://dnifyoucopyskins.straw.page/)
 
-
-
- 
+   <img sarc="640" height="1367" alt="Untitled2112_20260509135308" src="https://github.com/user-attachments/assets/8b42ef6c-92bc-48f8-a0e8-3450df942d1c" />
  
 
  <div align="center"> 
