@@ -2,29 +2,24 @@
 
 <p align="center"
 
-𝗧𝗬 𝗙𝗢𝗥 100 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥𝗦 !!!!!
+𝗧𝗬 𝗙𝗢𝗥 100 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥𝗦 !!!!! — REMAKING
 
 <p align="center"
 
 
 
  
-<img sarc="790" height="565" alt="Untitled2077_20260326204929" src="https://github.com/user-attachments/assets/b31781ba-e65a-41c8-8259-6c1c0ae678c0" />
 
 
-<p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fontdiner+Swanky&pause=1000&color=fd5e53&center=true&width=435&lines=%22+Look+at+that+i'm+human!+%22" alt="Typing SVG" /></a>
+
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastmen⠀%20&color=fd5e53&social"alt="wolfcutiee" 
   / >
  
 
   
-<img sarc="790" height="565" alt="Untitled2077_20260326204929" src="https://github.com/user-attachments/assets/b31781ba-e65a-41c8-8259-6c1c0ae678c0" />
- <div align="center"> 
+
  
-<img sarc="700" height="700" alt="Untitled2077_20260326204929"
-src=https://github.com/user-attachments/assets/3a43a8fd-859a-4039-9db8-816e21de34d2 />
 
  <div align="center"> 
 
@@ -33,8 +28,7 @@ $\color{red}{\textsf{look at straw for information about me , 𝐒𝐓𝐑𝐈�
 [𝗮𝘁𝗮](https://animacity.atabook.org) ⠀ ⠀ [𝘀𝘁𝗿𝗮𝘄𝗽𝗮𝗴𝗲](https://wolvesunite.straw.page/) ⠀ ⠀[𝗶𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁 𝗽𝗹𝗲𝗮𝘀𝗲 𝗰𝗹𝗶𝗰𝗸](https://dnifyoucopyskins.straw.page/)  ⠀ ⠀♡
 <p align="center">
  
-<img sarc="300" height="300" alt="Untitled2078_20260327182355" src="https://github.com/user-attachments/assets/8425b872-6afb-4f4a-a2a9-d2afb3326251" />
-<p align="center">
+
 
 
 
