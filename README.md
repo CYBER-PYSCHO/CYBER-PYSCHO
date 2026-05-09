@@ -1,4 +1,5 @@
 
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastmen⠀%20&color=ffa343&social"alt="wolfcutiee" 
   / >
  
@@ -23,7 +24,7 @@
  [<img sarc="200" height="200" alt="Untitled2110_20260509120322" src="https://github.com/user-attachments/assets/bec01249-83ea-4417-9ccf-560d896189c9"/> 
 ](https://animacity.atabook.org)    
 
- [<img sarc="200" height="200" alt="Untitled2110_20260509120322" src="https://github.com/user-attachments/assets/bec01249-83ea-4417-9ccf-560d896189c9"/> 
+ [<img sarc="200" height="200" alt="Untitled2110_20260509124547" src="https://github.com/user-attachments/assets/368e98a6-404a-4e7d-ad29-5c1153f415da" /> 
 ](https://dnifyoucopyskins.straw.page/)
 
 
