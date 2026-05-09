@@ -15,6 +15,7 @@
 
 
 
+   <img sarc="300" height="300" alt="Untitled2112_20260509135308" src="https://github.com/user-attachments/assets/8b42ef6c-92bc-48f8-a0e8-3450df942d1c" />
 
 
   <p align="center">
@@ -30,7 +31,11 @@
 ](https://dnifyoucopyskins.straw.page/)
 
    <img sarc="640" height="1367" alt="Untitled2112_20260509135308" src="https://github.com/user-attachments/assets/8b42ef6c-92bc-48f8-a0e8-3450df942d1c" />
- 
+
+
+
+
+
 
  <div align="center"> 
 
