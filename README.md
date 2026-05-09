@@ -13,7 +13,7 @@
 
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastmen⠀%20&color=fd5e53&social"alt="wolfcutiee" 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastmen⠀%20&color=faf0e6&social"alt="wolfcutiee" 
   / >
  
 
