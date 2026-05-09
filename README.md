@@ -2,7 +2,7 @@
 
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastmen⠀%20&color=ffa343&social"alt="wolfcutiee" 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastars⠀%20&color=ffa343&social"alt="wolfcutiee" 
   / >
  
 <p align="center"
