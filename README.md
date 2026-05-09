@@ -8,19 +8,18 @@
 
 𝗧𝗬 𝗙𝗢𝗥 100 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥𝗦 !!!!! — REMAKING
 
-<p align="center"
+  
 
 
 
+<div align="center">
+  
+[<img sarc="200" height="200" alt="Untitled2110_20260509120322" src="https://github.com/user-attachments/assets/bec01249-83ea-4417-9ccf-560d896189c9">](https://animacity.atabook.org)
+</div>
 
 
-
-
-  <p align="center">
     
-    
-  [<img sarc="200" height="200" alt="Untitled2110_20260509120322" src="https://github.com/user-attachments/assets/bec01249-83ea-4417-9ccf-560d896189c9"/> 
-](https://animacity.atabook.org)
+
 
 
  [<img sarc="200" height="200" alt="Untitled2110_20260509125559" src="https://github.com/user-attachments/assets/a45fc3d7-be24-47e8-978e-74e067c9785a" />
