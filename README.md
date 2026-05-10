@@ -27,7 +27,7 @@
 
  <div align="center"> 
 
-$\color{f8b878}{\textsf{look at straw for information about me , 𝐒𝐓𝐑𝐈𝐂𝐓𝐋𝐘 𝐃𝐍𝐈 ship discourse}}$
+$\color{f8b878}{\textsf{look at straw for information about me , 𝐒𝐓𝐑𝐈𝐂𝐓𝐋𝐘 𝐃𝐍𝐈 ship discourse ⠀♡ }}$
 
 
  
