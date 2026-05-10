@@ -1,4 +1,5 @@
- > keep in mind i have to still do my ata & strawpage but please go look at it has my info
+<p align="center"
+ </p> ᴋᴇᴇᴘ ɪɴ ᴍɪɴᴅ ɪ ʜᴀᴠᴇ ᴛᴏ ꜱᴛɪʟʟ ᴅᴏ ᴍʏ ᴀᴛᴀ & ꜱᴛʀᴀᴡᴘᴀɢᴇ ʙᴜᴛ ᴘʟᴇᴀꜱᴇ ɢᴏ ʟᴏᴏᴋ ᴀᴛ ɪᴛ ʜᴀꜱ ᴍʏ ɪɴꜰᴏ
 
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁eastars⠀%20&color=ffa343&social"alt="wolfcutiee" 
