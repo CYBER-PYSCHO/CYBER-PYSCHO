@@ -10,7 +10,8 @@
 𝗧𝗬 𝗙𝗢𝗥 100 𝗙𝗢𝗟𝗟𝗢𝗪𝗘𝗥𝗦 !!!!! — REMAKING
 
   
-<img sarc="736" height="359" alt="Untitled2114_20260509173126" src="https://github.com/user-attachments/assets/49bd39d8-5ddc-4b07-ba96-28dd0de9b7b0" />
+<img sarc="736" height="359" alt="Untitled2114_20260509195326" src="https://github.com/user-attachments/assets/fce217af-19fc-4cf7-91a7-9b2b4dc1a5ac" />
+
 
 
 
