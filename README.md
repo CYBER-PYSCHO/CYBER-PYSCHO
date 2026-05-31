@@ -8,7 +8,7 @@
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Gluten&pause=800&color=F7B05C&center=true&vCenter=true&width=435&lines=you+and+me+are+meant+to+be+;Four%2C+five%2C+six%2C+is+this+a+trick%3F+;I%E2%80%99m+not+sure+but+I+will+stick+with+youuu+%3C3)](https://git.io/typing-svg)
 
 <div align="center"> 
-<img sarc="736" height="359" alt="Untitled2114_20260509195326" src="https://github.com/user-attachments/assets/fce217af-19fc-4cf7-91a7-9b2b4dc1a5ac" />
+<img sarc="2224" height="1428" alt="Untitled2147_20260531193020" src="https://github.com/user-attachments/assets/f9c629d2-e3b3-4d90-91e6-a70c4761eee4" />
 
 
 
