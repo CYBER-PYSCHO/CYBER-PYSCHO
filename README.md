@@ -17,7 +17,7 @@
 <div align="center">
 
 [<img src="https://i.postimg.cc/DZhw0F4h/obraz-2026-05-09-221516045.png" width="120">](https://beastarss.atabook.org)
-[<img src="https://i.postimg.cc/Pf25XgtQ/obraz-2026-05-09-221535102.png" width="120">](https://wolfandrabbit.straw.page)
+[<img src="https://i.postimg.cc/44b7Z5Cs/Untitled2150-20260531201101.png" width="120">](https://wolfandrabbit.straw.page)
 [<img src="https://i.postimg.cc/tCcRPFnY/obraz-2026-05-09-221558345.png" width="120">](https://dnifyoucopyskins.straw.page)
 </div>
 
