@@ -1,7 +1,7 @@
 
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁unnies⠀%20&color=A9A9A9&social"alt="wolfcutiee" 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐁unnies⠀%20&color=848884&social"alt="wolfcutiee" 
   / >
  
 <p align="center"
