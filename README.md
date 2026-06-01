@@ -26,7 +26,7 @@
 
  <div align="center"> 
 
-look at straw for information about me , 𝐒𝐓𝐑𝐈𝐂𝐓𝐋𝐘 𝐃𝐍𝐈 ship discourse ⠀♡ 
+look at straw for information about me , 𝘀̲𝘁̲𝗿̲𝗶̲𝗰̲𝘁̲𝗹̲𝘆̲ ̲𝗱̲𝗻̲𝗶̲ ship discourse ⠀♡ 
 
 
  
