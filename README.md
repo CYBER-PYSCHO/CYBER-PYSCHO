@@ -16,9 +16,9 @@
 
 <div align="center">
 
-[<img src="https://i.postimg.cc/PqRcCZBY/Untitled2150-20260531201125.png" width="120">](https://beastarss.atabook.org)
-[<img src="https://i.postimg.cc/44b7Z5Cs/Untitled2150-20260531201101.png" width="120">](https://wolfandrabbit.straw.page)
-[<img src="https://i.postimg.cc/k5czqzyj/Untitled2150-20260531201142.png" width="120">](https://dnifyoucopyskins.straw.page)
+[<img src="https://i.postimg.cc/bJQQ7Sft/Untitled2150-20260531210324.png" width="130">](https://beastarss.atabook.org)
+[<img src="https://i.postimg.cc/RVmPZ9Ph/Untitled2150-20260531210122.png" width="130">](https://wolfandrabbit.straw.page)
+[<img src="https://i.postimg.cc/q7Nw577g/Untitled2150-20260531205833.png" width="130">](https://dnifyoucopyskins.straw.page)
 </div>
 
 
