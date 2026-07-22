@@ -17,7 +17,7 @@
 
  <div align="center"> 
 
-[![IMG-7628.gif](https://i.postimg.cc/d1kQyB3z/IMG-7628.gif)](https://postimg.cc/S24p0cWr) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀be paitient pls⠀ ⠀ ⠀⠀ ⠀ ⠀☰
+[![IMG-7628.gif](https://i.postimg.cc/d1kQyB3z/IMG-7628.gif)](https://postimg.cc/S24p0cWr) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀umm yea hi ⠀ ⠀⠀ ⠀ ⠀☰
 
 
 
