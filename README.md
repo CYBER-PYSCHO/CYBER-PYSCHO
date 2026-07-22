@@ -6,7 +6,7 @@
  
  <div align="center"> 
 
-   **heyy so while this is in the works i have no set dni besides ship discourse / u act childish because of a ship :T**
+   **heyy so while this is in the works i have no set dni besides ship discourse / T.R.A.S.H people :T**
  
  <div align="center">    
 <img sarc="580" height="567" alt="Untitled2237_20260722004436" src="https://github.com/user-attachments/assets/2f5111c5-2add-4e74-9190-5fd4854ef24b" />
