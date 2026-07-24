@@ -10,14 +10,15 @@
  
   **ALSO PLEASEE take some time to look at this** 
  
-  [SPREAD AWARNESS](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?usp=sharing)
+
+[![ga8h1G5.gif](https://i.postimg.cc/3RCCM8PX/ga8h1G5.gif)](https://postimg.cc/62qGnX6q)⠀ ⠀⠀ ⠀ ⠀   [SPREAD AWARNESS](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?usp=sharing) ⠀ ⠀⠀ ⠀ ⠀☰
  
  <div align="center">    
 <img sarc="580" height="567" alt="Untitled2237_20260722004436" src="https://github.com/user-attachments/assets/2f5111c5-2add-4e74-9190-5fd4854ef24b" />
 
  <div align="center"> 
-
-[![IMG-7628.gif](https://i.postimg.cc/d1kQyB3z/IMG-7628.gif)](https://postimg.cc/S24p0cWr) ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀☰
+   
+   [<img src="https://i.postimg.cc/Hs354PgT/Untitled2245-20260724124535.png" width="190">](https://fluffle.cc/jessiepants) ⠀ ⠀⠀ ⠀ ⠀
 
 
 
