@@ -18,7 +18,12 @@
 
  <div align="center"> 
    
-   [<img src="https://i.postimg.cc/Hs354PgT/Untitled2245-20260724124535.png" width="190">](https://fluffle.cc/jessiepants) ⠀ ⠀⠀ ⠀ ⠀
+   [<img src="https://i.postimg.cc/G2WFsBGV/link1.png" width="200">](https://fluffle.cc/jessiepants) 
+[<img src="https://i.postimg.cc/9FW4gtmN/link2.png" width="200">](https://fluffle.cc/jessiepants) 
+[<img src="https://i.postimg.cc/VLGN7xHr/link3.png" width="200">](https://fluffle.cc/jessiepants) 
+
+
+
 
 
 
