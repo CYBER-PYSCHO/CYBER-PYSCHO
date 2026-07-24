@@ -18,7 +18,9 @@
 
  <div align="center"> 
    
-   [<img src="https://i.postimg.cc/G2WFsBGV/link1.png" width="200">](https://fluffle.cc/jessiepants) 
+   <div align="center">
+
+[<img src="https://i.postimg.cc/G2WFsBGV/link1.png" width="200">](https://fluffle.cc/jessiepants) 
 [<img src="https://i.postimg.cc/9FW4gtmN/link2.png" width="200">](https://fluffle.cc/jessiepants) 
 [<img src="https://i.postimg.cc/VLGN7xHr/link3.png" width="200">](https://fluffle.cc/jessiepants) 
 
