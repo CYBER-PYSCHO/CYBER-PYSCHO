@@ -6,11 +6,10 @@
  
  <div align="center"> 
 
-   **heyy so while this is in the works i have no set dni besides ship discourse / T.R.A.S.H people :T**
- 
-  **ALSO PLEASEE take some time to look at this** 
- 
 
+
+
+   
 [![ga8h1G5.gif](https://i.postimg.cc/3RCCM8PX/ga8h1G5.gif)](https://postimg.cc/62qGnX6q)⠀ ⠀⠀ ⠀ ⠀   [SPREAD AWARNESS](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?usp=sharing) ⠀ ⠀⠀ ⠀ ⠀☰
  
  <div align="center">    
