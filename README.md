@@ -1,6 +1,7 @@
 
 
 
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐓oys⠀%20&color=E34234&social"alt="wolfcutiee" 
   / >
  
@@ -13,8 +14,8 @@
 [![ga8h1G5.gif](https://i.postimg.cc/3RCCM8PX/ga8h1G5.gif)](https://postimg.cc/62qGnX6q)⠀ ⠀⠀ ⠀ ⠀   [SPREAD AWARNESS](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?usp=sharing) ⠀ ⠀⠀ ⠀ ⠀☰
  
  <div align="center">    
-placeholder image :TT
-
+<img sarc="680" height="434" alt="IMG_7649" src="https://github.com/user-attachments/assets/ef507fc7-1d29-4b5e-b0a7-de5507472385" />
+not mine ok bye
  <div align="center"> 
    
    <div align="center">
