@@ -13,7 +13,7 @@
 [![ga8h1G5.gif](https://i.postimg.cc/3RCCM8PX/ga8h1G5.gif)](https://postimg.cc/62qGnX6q)⠀ ⠀⠀ ⠀ ⠀   [SPREAD AWARNESS](https://docs.google.com/document/d/1Zw251H_qY1zRE4KAXhFO-r-3-JTH012_eN-yMVhkPDc/edit?usp=sharing) ⠀ ⠀⠀ ⠀ ⠀☰
  
  <div align="center">    
-<img sarc="580" height="567" alt="Untitled2237_20260722004436" src="https://github.com/user-attachments/assets/2f5111c5-2add-4e74-9190-5fd4854ef24b" />
+placeholder image :TT
 
  <div align="center"> 
    
