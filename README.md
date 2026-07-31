@@ -15,7 +15,8 @@
  
  <div align="center">    
 <img sarc="680" height="434" alt="IMG_7649" src="https://github.com/user-attachments/assets/ef507fc7-1d29-4b5e-b0a7-de5507472385" />
-not mine ok bye
+
+   placeholder image ok bye
  <div align="center"> 
    
    <div align="center">
