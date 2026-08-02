@@ -10,7 +10,7 @@
 
 
 <img sarc="30" height="30" alt="image" src="https://github.com/user-attachments/assets/bc5f6b7f-0506-4b73-9e0b-9885ae39e6ab" />
-   ⠀ ⠀⠀ ⠀ ⠀mw @kruItepes ⠀ ⠀⠀ ⠀ ⠀☰
+   ⠀ ⠀⠀ ⠀ ⠀luv urself ⠀ ⠀⠀ ⠀ ⠀☰
  
  <div align="center">    
 <img sarc="680" height="434" alt="IMG_7649" src="https://github.com/user-attachments/assets/ef507fc7-1d29-4b5e-b0a7-de5507472385" />
