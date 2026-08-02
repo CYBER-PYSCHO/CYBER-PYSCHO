@@ -13,9 +13,10 @@
    ⠀ ⠀⠀ ⠀ ⠀lυv υrsᥱlf ⠀ ⠀⠀ ⠀ ⠀☰
  
  <div align="center">    
-<img sarc="680" height="434" alt="IMG_7649" src="https://github.com/user-attachments/assets/ef507fc7-1d29-4b5e-b0a7-de5507472385" />
+<img sarc="900" height="1200" alt="Untitled2265_20260801223407" src="https://github.com/user-attachments/assets/1536c824-306c-411d-929a-92dbfc5af0c9" />
 
-   placeholder image ok bye
+
+   
  <div align="center"> 
    
    <div align="center">
