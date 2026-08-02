@@ -5,6 +5,7 @@
 
 
 
+
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐓oys⠀%20&color=D70040&social"alt="wolfcutiee" 
   / >
  
@@ -16,7 +17,7 @@
    ⠀ ⠀⠀ ⠀ ⠀lυv υrsᥱlf ⠀ ⠀⠀ ⠀ ⠀☰
  
  <div align="center">    
-<img sarc="700" height="900" alt="Untitled2265_20260801224936" src="https://github.com/user-attachments/assets/aff14b86-0881-4057-ab44-b609798f0667" />
+<img sarc="700" height="900" alt="Untitled2265_20260801225314" src="https://github.com/user-attachments/assets/fd6b1902-5129-4443-a179-e75562903ff9" />
 
 
    
