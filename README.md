@@ -6,9 +6,6 @@
 
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐓oys⠀%20&color=DC143C&social"alt="wolfcutiee" 
-  / >
- 
  <div align="center"> 
 
 
