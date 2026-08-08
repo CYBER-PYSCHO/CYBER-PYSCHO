@@ -4,13 +4,17 @@
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝐦ortys⠀%20&color=B3C6E3&social"alt="wolfcutiee" 
   / >
-
-
  <div align="center"> 
 
 
 
+
+
 <img sarc="50" height="70" alt="Untitled2273_20260808090828" src="https://github.com/user-attachments/assets/52a33477-39eb-46b7-909b-c084fe6fc043" />
+
+<sup><sub> dr., dr. feel good come make me feel real good strap me down into my chair i've been feeling real bad
+</sub></sup>
+ <div align="center"> 
 
    ⠀ ⠀⠀ ⠀ ⠀ tysm [@pt-stars](https://github.com/pt-stars) , [@pt-fashion](https://github.com/pt-fashion) , [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) , [@pt-friendships](https://github.com/pt-friendships) ♡ ⠀ ⠀⠀ ⠀ ⠀
  
