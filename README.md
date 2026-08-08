@@ -19,7 +19,7 @@
    ⠀ ⠀⠀ ⠀ ⠀ tysm [@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion)  [pt-walk-of-fame](https://github.com/pt-walk-of-fame)  [pt-friendships](https://github.com/pt-friendships)⠀⠀ ⠀ ⠀♡ 
  
  <div align="center">    
- <img sarc="513" height="721" alt="Untitled2271_20260808082923" src="https://github.com/user-attachments/assets/51dfb557-d289-479e-8f57-7631589a54fa" />
+ <img sarc="413" height="621" alt="Untitled2271_20260808082923" src="https://github.com/user-attachments/assets/51dfb557-d289-479e-8f57-7631589a54fa" />
 
 
 <sup><sub>not jerry x rick so don't assume oke I thought the art was cute </sub></sup>
