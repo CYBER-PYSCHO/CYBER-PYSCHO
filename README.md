@@ -10,8 +10,9 @@
 
 
 
-<img sarc="30" height="30" alt="image" src="https://github.com/user-attachments/assets/bc5f6b7f-0506-4b73-9e0b-9885ae39e6ab" />
-   ⠀ ⠀⠀ ⠀ ⠀lυv υrsᥱlf ⠀ ⠀⠀ ⠀ ⠀☰
+<img sarc="50" height="70" alt="Untitled2273_20260808090828" src="https://github.com/user-attachments/assets/52a33477-39eb-46b7-909b-c084fe6fc043" />
+
+   ⠀ ⠀⠀ ⠀ ⠀lυv υrsᥱlf ⠀ ⠀⠀ ⠀ ⠀
  
  <div align="center">    
  <img sarc="513" height="721" alt="Untitled2271_20260808082923" src="https://github.com/user-attachments/assets/51dfb557-d289-479e-8f57-7631589a54fa" />
