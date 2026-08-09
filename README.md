@@ -41,7 +41,7 @@
    
    <div align="center">
 
-[<img src="https://i.postimg.cc/SsMhqzmB/Untitled2274-20260809031136.png" width="200">](https://fluffle.cc/jessiepants) 
+[<img src="https://i.postimg.cc/SsMhqzmB/Untitled2274-20260809031136.png" width="200">](https://fluffle.cc/primerick) 
 [<img src="https://i.postimg.cc/LXYHXb3Z/Untitled2274-20260809030905.png" width="200">](https://smartipants.atabook.org) 
 [<img src="https://i.postimg.cc/TY8PyfSc/Untitled2274-20260809030902.png" width="200">](https://copied-ponies.straw.page)
 
