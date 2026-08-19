@@ -1,3 +1,7 @@
+ <div align="center"> 
+<sup><sub> might be inactive because of school sorry :(
+</sub></sup>
+
 
 
 
