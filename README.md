@@ -6,7 +6,7 @@
 
 
 
-<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀🅰DVENTURES%20&color=2C2E24&social"alt="wolfcutiee" 
+<p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀🅰DVENTURES%20&color=51493A&social"alt="wolfcutiee" 
   / >
  <div align="center"> 
 
