@@ -24,10 +24,10 @@ Forever, you and I
    ⠀tysm [@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion)  [pt-walk-of-fame](https://github.com/pt-walk-of-fame)  [pt-friendships](https://github.com/pt-friendships)⠀♡ 
  
  <div align="center">    
- <img sarc="513" height="721" alt="Untitled2271_20260808082923" src="https://github.com/user-attachments/assets/51dfb557-d289-479e-8f57-7631589a54fa" />
+<img sarc="635" height="811" alt="image" src="https://github.com/user-attachments/assets/a0b83ff2-98da-4a08-844f-14d93ed93182" />
 
 
-<sup><sub>NOT a jerry x rick shipper so don't assume oke I thought the art was cute </sub></sup>
+<sup><sub> temporary image I guess </sub></sup>
 
 <details>
 <summary>⠀ ⠀ ⠀(- ‸ - )⠀ ⠀inᥴᥲse u d᥆n't click on my lіᥒks</summary>   ⠀ ⠀
