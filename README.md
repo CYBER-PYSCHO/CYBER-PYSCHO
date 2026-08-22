@@ -1,3 +1,4 @@
+
  <div align="center"> 
 <sup><sub> might be semi-inactive because of school sorry :(
 </sub></sup>
@@ -24,8 +25,7 @@ Forever, you and I
    ⠀tysm [@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion)  [pt-walk-of-fame](https://github.com/pt-walk-of-fame)  [pt-friendships](https://github.com/pt-friendships)⠀♡ 
  
  <div align="center">    
-<img sarc="635" height="811" alt="image" src="https://github.com/user-attachments/assets/a0b83ff2-98da-4a08-844f-14d93ed93182" />
-
+<img sarc="954" height="784" alt="ily" src="https://github.com/user-attachments/assets/f041e116-05ea-494d-a2a6-7a5a4af38636" />
 
 <sup><sub> temporary image I guess </sub></sup>
 
