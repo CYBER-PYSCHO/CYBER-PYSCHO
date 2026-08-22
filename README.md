@@ -16,7 +16,8 @@
 
 <img sarc="50" height="70" alt="Untitled2273_20260808090828" src="https://github.com/user-attachments/assets/52a33477-39eb-46b7-909b-c084fe6fc043" />
 
-<sup><sub> dr., dr. feel good come make me feel real good strap me down into my chair i've been feeling real bad
+<sup><sub> Thought we'd go on, you by my side
+Forever, you and I
 </sub></sup>
  <div align="center"> 
 
