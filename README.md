@@ -23,7 +23,7 @@ Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄
 </sub></sup>
  <div align="center"> 
 
-   ⠀tysm [@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion)  [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)  [@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town)
+   ⠀𝔱ysm [@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion)  [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)  [@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town)
 ⠀♡ 
  
  <div align="center">    
