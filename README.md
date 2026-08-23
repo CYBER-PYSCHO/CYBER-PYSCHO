@@ -15,7 +15,8 @@
 
 
 
-<img sarc="50" height="70" alt="Untitled2273_20260808090828" src="https://github.com/user-attachments/assets/52a33477-39eb-46b7-909b-c084fe6fc043" />
+<img sarc="300" height="250" alt="image" src="https://github.com/user-attachments/assets/eaef30a0-b592-4df0-b5ee-08ba5f3c4e70" />
+
 
 <sup><sub> Thought we'd go on, you by my side
 Forever, you and I
