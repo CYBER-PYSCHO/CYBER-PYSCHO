@@ -29,7 +29,7 @@ Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄
 <img sarc="954" height="784" alt="ily" src="https://github.com/user-attachments/assets/3363a3b4-174e-42e9-965e-baf371f5896a" />
 
 
-<sup><sub> art credits go to scotty_nya on tiktok! </sub></sup>
+<sup><sub> art credits go to 𝘀𝗰𝗼𝘁𝘁𝘆_𝗻𝘆𝗮 on tiktok! </sub></sup>
 
 <details>
 <summary>⠀ ⠀ ⠀(- ‸ - )⠀ ⠀inᥴᥲse u d᥆n't click on my lіᥒks</summary>   ⠀ ⠀
