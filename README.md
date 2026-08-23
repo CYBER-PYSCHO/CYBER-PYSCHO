@@ -1,8 +1,9 @@
 
- <div align="center"> 
-<sup><sub> might be semi-inactive because of school sorry :(
-</sub></sup>
 
+ <div align="center"> 
+
+  <sup><sub> ᴍɪɢʜᴛ ʙᴇ ꜱᴇᴍɪ-ɪɴᴀᴄᴛɪᴠᴇ ꜱɪɴᴄᴇ ꜱᴄʜᴏᴏʟ ʜᴀꜱ ꜱᴛᴀʀᴛᴇᴅ ᴀɢᴀɪɴ ɪᴍ ꜱᴏʀʀʏ ( • ᴖ • ｡)
+</sub></sup>
 
 
 
