@@ -17,6 +17,7 @@
 
 <sup><sub> 𝙏hought we'd go on, you by my side
 Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄
+pc for better view
 </sub></sup>
  <div align="center"> 
 
