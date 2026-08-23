@@ -32,7 +32,7 @@ Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄
 <details>
 <summary>⠀ ⠀ ⠀⿻⠀ ⠀inᥴᥲse ⠀u ⠀d᥆n't ⠀l᥆᥆k ⠀ᥲt ⠀my ⠀info   ⠀pᥲge</summary>   ⠀ ⠀
   
-   ⠀ ⠀first thing to get out of the way block me if you're just gonna be a big piece of shit over ships keep it to yourself idc if u talk about disliking it but don't clown others who ship it anyway I might be silent it's a 50/50 chance and sorry if I don't talk that time then, I just get super shy because and find u cool oke.. I'm not really open to new friends off the bat I'd like to have maybe some sort of connection or if we click, if you plan to hate on my interests all the time otherwise just don't int. 
+   ⠀ ⠀hi don't int if ur gonna be dramatic about ships n such I hate ship discourse and its annoying to deal with even if u do int ill most likely block you not that'd id be uncomfortable if u interacted just don't need those type of people in my space o-o keep it to yourself and idc if u say that u dislike a ship I like just be rational about it and we're good. if u end up whispering me or try to have conversation I might be silent it's a 50  /   50 chance so sorry! I could be drained, tired, or just low social battery okkk last thing is if u DO end up going into the info page you'll see repeats of stuff I've said just said differently and with more detail  !!!
   
   𝗱𝗼𝗻'𝘁 take inspo & 𝗱𝗼𝗻'𝘁 copy my ponies thanks! ◝(ᵔᵕᵔ)◜
 </details>
