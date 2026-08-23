@@ -25,7 +25,8 @@ Forever, you and I
    ⠀tysm [@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion)  [pt-walk-of-fame](https://github.com/pt-walk-of-fame)  [pt-friendships](https://github.com/pt-friendships)⠀♡ 
  
  <div align="center">    
-<img sarc="954" height="784" alt="ily" src="https://github.com/user-attachments/assets/f041e116-05ea-494d-a2a6-7a5a4af38636" />
+<img sarc="954" height="784" alt="ily" src="https://github.com/user-attachments/assets/3363a3b4-174e-42e9-965e-baf371f5896a" />
+
 
 <sup><sub> temporary image I guess </sub></sup>
 
