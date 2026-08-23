@@ -18,8 +18,8 @@
 <img sarc="300" height="250" alt="image" src="https://github.com/user-attachments/assets/3c9d7e67-5164-4768-bd4b-3cd7cd63ae97" />
 
 
-<sup><sub> Thought we'd go on, you by my side
-Forever, you and I
+<sup><sub> 𝙏hought we'd go on, you by my side
+Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄
 </sub></sup>
  <div align="center"> 
 
