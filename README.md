@@ -46,9 +46,9 @@ Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄
    
    <div align="center">
 
-[<img src="https://i.postimg.cc/NfnLJthg/infotxt.png" width="200">](https://fluffle.cc/primerick) 
-[<img src="https://i.postimg.cc/G2Bbs82G/atatxt.png" width="200">](https://ricksanchez.atabook.org) 
-[<img src="https://i.postimg.cc/0QSLspjp/clicktxt.png" width="200">](https://copied-ponies.straw.page)
+[<img src="https://i.postimg.cc/t4f4XGpr/infotxt.png" width="200">](https://fluffle.cc/primerick) 
+[<img src="https://i.postimg.cc/rmGVCdWg/atatxt.png" width="200">](https://ricksanchez.atabook.org) 
+[<img src="https://i.postimg.cc/4xKX22VK/clicktxt.png" width="200">](https://copied-ponies.straw.page)
 
 
 
