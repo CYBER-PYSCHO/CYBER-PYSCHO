@@ -42,7 +42,7 @@ Forever, you and I
  ⠀ ⠀ 
 
  
- ⠀ ⠀⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻⸻
+<img sarc="612" height="58" alt="image" src="https://github.com/user-attachments/assets/009cf527-7b64-4b23-bca6-6db655a1ff15" />
 
  <div align="center"> 
    
