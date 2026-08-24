@@ -17,7 +17,6 @@
 
 <sup><sub> 𝙏hought we'd go on, you by my side
 Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄</sub></sup>  
-<sup><sub> pc for better view</sub></sup> 
  <div align="center"> 
 
 
@@ -29,6 +28,8 @@ Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄</sub></sup>
 
 
 <sup><sub> art credits go to 𝘀𝗰𝗼𝘁𝘁𝘆_𝗻𝘆𝗮 on tiktok! </sub></sup>
+  
+   <sup><sub> pc for better view</sub></sup> 
 
 <details>
 <summary>⠀ ⠀ ⠀⿻⠀ ⠀inᥴᥲse ⠀u ⠀d᥆n't ⠀l᥆᥆k ⠀ᥲt ⠀my ⠀info   ⠀pᥲge</summary>   ⠀ ⠀
