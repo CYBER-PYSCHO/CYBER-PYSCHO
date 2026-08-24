@@ -16,10 +16,10 @@
 
 
 <sup><sub> 𝙏hought we'd go on, you by my side
-Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄
-pc for better view
-</sub></sup>
+Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄</sub></sup>  
+<sup><sub> pc for better view</sub></sup> 
  <div align="center"> 
+
 
    ⠀𝔱ysm ⠀[@pt-stars](https://github.com/pt-stars) ⠀[@pt-fashion](https://github.com/pt-fashion)  ⠀[@pt-walk-of-fame](https://github.com/pt-walk-of-fame)  ⠀[@pt-friendships](https://github.com/pt-friendships) ⠀[@ship-town](https://github.com/ship-town)
 ⠀♡ 
