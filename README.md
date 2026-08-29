@@ -17,6 +17,8 @@
 
 <sup><sub> 𝙏hought we'd go on, you by my side
 Forever, 𝙮̲𝙤̲𝙪̲ and 𝙄</sub></sup>  
+
+⠀<sup><sub> I DONT LIKE INCEST GO AWAY🚨</sub></sup>  
  <div align="center"> 
 
 
