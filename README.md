@@ -4,4 +4,4 @@
 
 work in progress : ) please waittt
 
- in the mean time check out my [fluffle](fluffle.cc/primerick)
+ in the mean time check out my [fluffle](https://fluffle.cc/primerick)
