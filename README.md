@@ -3,3 +3,6 @@
 
  <div align="center"> 
 ⠀<sup><sub> remaking lol </sub></sup>
+
+  ⠀<sup><sub> I DONT LIKE INCEST GO AWAY🚨</sub></sup>
+ <div align="center"> 
