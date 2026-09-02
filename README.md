@@ -5,3 +5,5 @@
 work in progress : ) please waittt
 
  in the mean time check out my [fluffle](https://fluffle.cc/primerick)
+
+ or sign my [ata](https://ricksanchez.atabook.org)
