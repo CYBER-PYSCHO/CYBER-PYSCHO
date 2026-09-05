@@ -12,8 +12,9 @@ work in progress : ) please waittt
 
  or sign my [ata](https://ricksanchez.atabook.org)
 
-btw im not an incest lover ok thanks.
+<sup><sub> @rexdinovest on Tumblr for pfp  : ) </sub></sup>
 
-@rexdinovest profile credits : )
+<sup><sub> I DONT LIKE INCEST GO AWAY🚨</sub></sup>
+
 
 <img width="20" height="20" alt="jwwNzIJ" src="https://github.com/user-attachments/assets/0d26f0d5-20d9-4551-9ed4-a89ef516522d" />
