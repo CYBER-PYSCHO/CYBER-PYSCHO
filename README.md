@@ -7,6 +7,7 @@
  <div align="center"> 
   
 
+[<img src="https://i.postimg.cc/8C5PWXLy/awwwwwww.png" width="150">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/fWXWx9Sg/two.png" width="150">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/qMxkFHL3/e.png" width="120">](https://fluffle.cc/primerick) 
 
 
 
