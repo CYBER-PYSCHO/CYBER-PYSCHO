@@ -8,9 +8,11 @@
   
 work in progress : ) please waittt
 
- in the mean time check out my [fluffle](https://fluffle.cc/primerick)
+⠀𝔱ysm ⠀[@pt-stars](https://github.com/pt-stars) ⠀[@pt-fashion](https://github.com/pt-fashion) ⠀[@pt-walk-of-fame](https://github.com/pt-walk-of-fame)  
+[@pt-friendships](https://github.com/pt-friendships) ⠀[@ship-town](https://github.com/ship-town)  ⠀[@kaotown](https://github.com/kaotown)
 
- or sign my [ata](https://ricksanchez.atabook.org)
+ [fluffle](https://fluffle.cc/primerick)
+[ata](https://ricksanchez.atabook.org)
 
 <sup><sub> @rexdinovest on Tumblr for pfp  : ) </sub></sup>
 
