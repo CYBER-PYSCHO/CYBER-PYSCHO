@@ -10,7 +10,7 @@
 
 
 
-<sup><sub> @rexdinovest on Tumblr for pfp  : ) </sub></sup>    <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/af377823-8892-469b-9f2c-74bd8f353986" />
+<sup><sub> @rexdinovest on tumblr for pfp  : ) </sub></sup>    <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/af377823-8892-469b-9f2c-74bd8f353986" />
    
     <sup><sub> I DONT LIKE INCEST 🚨</sub></sup>
 
