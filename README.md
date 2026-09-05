@@ -14,7 +14,7 @@
 
 <sup><sub>[@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) </sub></sup>
 
-  <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown)</sub></sup>       <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/1d70b6ee4c6d2bf0ed88e8329a3e3928/a098f0615d32d80d-f3/s75x75_c1/162197fe6c3d276490e68bd812561dde1cf0404d.gif" />
+  <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown)</sub></sup>       <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/679ffa0f1d444d4915032c410564fc15/123752b6273a6a2b-ff/s75x75_c1/78cd0e3a43d1177f0ecba2efbdd433a2f4a725e6.gif" />
 
 
 
