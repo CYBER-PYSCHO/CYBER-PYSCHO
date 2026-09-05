@@ -17,4 +17,4 @@ work in progress : ) please waittt
 <sup><sub> I DONT LIKE INCEST GO AWAY🚨</sub></sup>
 
 
-<img width="20" height="20" alt="jwwNzIJ" src="https://github.com/user-attachments/assets/0d26f0d5-20d9-4551-9ed4-a89ef516522d" />
+<img width="20" height="20" alt="7jhaogC" src="https://github.com/user-attachments/assets/f03d6221-a08d-4b63-b517-7c60c7f9eea1" />
