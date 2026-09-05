@@ -1,10 +1,14 @@
- <div align="left"> 
+
+ 
+
   
 <img src="https://files.catbox.moe/a13eua.png" width="500" height="auto" align="left"></img></a>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝘼𝗗𝗩𝗘𝗡𝗧𝗨𝗥𝗘𝗦⠀⠀⠀%20&color=f7f352&social"alt="wolfcutiee" 
   / >
  <div align="center"> 
+
+ <sup><sub> ⠀     pc     recommended⠀    <sup><sub>
   
   
 [<img src="https://i.postimg.cc/1tFgnYZp/one.png" width="100">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/fWXWx9Sg/two.png" width="110">](https://ricksanchez.atabook.org) [<img src="https://i.postimg.cc/1zfVP3CY/click.png" width="100">](https://copied-ponies.straw.page) 
