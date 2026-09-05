@@ -15,6 +15,7 @@
 
   <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown)</sub></sup>
 
+ <div align="center"> 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/af377823-8892-469b-9f2c-74bd8f353986" />
 
 
