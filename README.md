@@ -1,4 +1,4 @@
- <div align="center"> 
+ <div align="left"> 
   
 <img src="https://files.catbox.moe/a13eua.png" width="500" height="auto" align="left"></img></a>
 
@@ -15,8 +15,6 @@
 
   <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown)</sub></sup>
 
- <div align="right"> 
-<sup><sub> @rexdinovest on tumblr for pfp  : ) </sub></sup> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/af377823-8892-469b-9f2c-74bd8f353986" />
 
 
 
