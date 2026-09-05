@@ -11,9 +11,11 @@
 
 
 
-<sup><sub> @rexdinovest on tumblr for pfp  : ) </sub></sup>    <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/af377823-8892-469b-9f2c-74bd8f353986" />
-   
-    <sup><sub> I DONT LIKE INCEST 🚨</sub></sup>
+<sup><sub> @rexdinovest on tumblr for pfp  : ) </sub></sup> <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/af377823-8892-469b-9f2c-74bd8f353986" />
+ <sup><sub> I DONT LIKE INCEST 🚨</sub></sup>
+
+   <sup><sub> send me gimmicks slash ata signs pls oke </sub></sup>
 
 <sup><sub> ⠀thank     u ⠀    [@pt-stars](https://github.com/pt-stars) ⠀    [@pt-fashion](https://github.com/pt-fashion) ⠀    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)      
 [@pt-friendships](https://github.com/pt-friendships)     ⠀[@ship-town](https://github.com/ship-town)      ⠀[@kaotown](https://github.com/kaotown)     </sub></sup>
+
