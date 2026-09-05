@@ -16,5 +16,10 @@
 
    <sup><sub> send me gimmicks slash ata signs pls oke </sub></sup>
 
-<sup><sub> ⠀thank     u ⠀    [@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) [@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown)     </sub></sup>
+<sup><sub> ⠀     thank     u ⠀    <sup><sub>
+
+<sup><sub>[@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) </sub></sup>
+
+  <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown)</sub></sup>
+
 
