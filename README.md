@@ -1,6 +1,6 @@
  <div align="center"> 
   
-<img src="https://files.catbox.moe/louobh.png" width="500" height="auto" align="left"></img></a>
+<img src="https://files.catbox.moe/a13eua.png" width="500" height="auto" align="left"></img></a>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝘼𝗗𝗩𝗘𝗡𝗧𝗨𝗥𝗘𝗦⠀⠀⠀%20&color=a0d6c5&social"alt="wolfcutiee" 
   / >
