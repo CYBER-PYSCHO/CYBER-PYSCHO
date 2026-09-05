@@ -13,5 +13,5 @@ work in progress : ) please waittt
 
 
 <sup><sub> @rexdinovest on Tumblr for pfp  : ) </sub></sup>    <img width="20" height="20" alt="7jhaogC" src="https://github.com/user-attachments/assets/f03d6221-a08d-4b63-b517-7c60c7f9eea1" />
-    <sup><sub> I DONT LIKE INCEST GO AWAY🚨</sub></sup>
+    <sup><sub> I DONT LIKE INCEST 🚨</sub></sup>
 
