@@ -8,10 +8,11 @@
   
 work in progress : ) please waittt
 
-<sup><sub> ⠀thank     u ⠀    [@pt-stars](https://github.com/pt-stars) ⠀    [@pt-fashion](https://github.com/pt-fashion) ⠀    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)      
-[@pt-friendships](https://github.com/pt-friendships)     ⠀[@ship-town](https://github.com/ship-town)      ⠀[@kaotown](https://github.com/kaotown)     </sub></sup>
+
 
 
 <sup><sub> @rexdinovest on Tumblr for pfp  : ) </sub></sup>    <img width="20" height="20" alt="7jhaogC" src="https://github.com/user-attachments/assets/f03d6221-a08d-4b63-b517-7c60c7f9eea1" />
     <sup><sub> I DONT LIKE INCEST 🚨</sub></sup>
 
+<sup><sub> ⠀thank     u ⠀    [@pt-stars](https://github.com/pt-stars) ⠀    [@pt-fashion](https://github.com/pt-fashion) ⠀    [@pt-walk-of-fame](https://github.com/pt-walk-of-fame)      
+[@pt-friendships](https://github.com/pt-friendships)     ⠀[@ship-town](https://github.com/ship-town)      ⠀[@kaotown](https://github.com/kaotown)     </sub></sup>
