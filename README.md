@@ -7,7 +7,7 @@
  <div align="center"> 
   
 
-[<img src="https://i.postimg.cc/1tFgnYZp/one.png" width="105">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/fWXWx9Sg/two.png" width="120">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/1zfVP3CY/click.png" width="105">](https://fluffle.cc/primerick) 
+[<img src="https://i.postimg.cc/1tFgnYZp/one.png" width="100">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/fWXWx9Sg/two.png" width="110">](https://fluffle.cc/primerick) [<img src="https://i.postimg.cc/1zfVP3CY/click.png" width="100">](https://fluffle.cc/primerick) 
 
 
 
