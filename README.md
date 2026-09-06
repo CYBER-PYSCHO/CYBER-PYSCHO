@@ -1,7 +1,4 @@
 
- 
-
-  
 <img src="https://files.catbox.moe/a13eua.png" width="500" height="auto" align="left"></img></a>
 
 <p align="center"> <img src="https://komarev.com/ghpvc/?username=wolfcutiee&label=󠀠⠀‿‿⠀𝘼𝗗𝗩𝗘𝗡𝗧𝗨𝗥𝗘𝗦⠀⠀⠀%20&color=f7f352&social"alt="wolfcutiee" 
@@ -14,7 +11,8 @@
 
 <sup><sub>[@pt-stars](https://github.com/pt-stars) [@pt-fashion](https://github.com/pt-fashion) [@pt-walk-of-fame](https://github.com/pt-walk-of-fame) </sub></sup>
 
-  <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown)</sub></sup>       <img width="20" height="20" alt="image" src="https://64.media.tumblr.com/679ffa0f1d444d4915032c410564fc15/123752b6273a6a2b-ff/s75x75_c1/78cd0e3a43d1177f0ecba2efbdd433a2f4a725e6.gif" />
+  <sup><sub>[@pt-friendships](https://github.com/pt-friendships) [@ship-town](https://github.com/ship-town) [@kaotown](https://github.com/kaotown)</sub></sup>       <img width="20" height="25" alt="image" src="https://64.media.tumblr.com/679ffa0f1d444d4915032c410564fc15/123752b6273a6a2b-ff/s75x75_c1/78cd0e3a43d1177f0ecba2efbdd433a2f4a725e6.gif" />
+
 
 
 
